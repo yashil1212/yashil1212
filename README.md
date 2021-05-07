@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yashil1212
+- 👀 Student at Berkeley
+- Oski!
+- 💞️ compsci major!
+- Love graphic design!
